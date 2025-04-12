@@ -18,7 +18,7 @@
 5. Ahora agregamos 1 tomate picado, 1 pimiento sin venas ni pepas picado y 50 gr de culantro picado y movemos los ingredientes por 2 minutos.
 6. Por último verificamos la cocción de la carne.
  
-<img src="https://i.ytimg.com/vi/Pw9bNnx9iZA/maxresdefault.jpg" alt="Seco-Chavelo" height="350" />
+
 
 [Cómo se prepara](https://www.youtube.com/watch?v=OYI_va8IHrg)
 
